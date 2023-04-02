@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **matiasmorinicobj@gmail.com**
 
-- 📄 Know about my experiences [soy Founder & CEO de It recruiter technology](soy Founder & CEO de It recruiter technology)
+- 📄 Know about my experiences (soy Founder & CEO de It recruiter technology plataforma que ayuda a expandir cv de perfiles de tecnologia a empresas de todas partes del mundo)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
