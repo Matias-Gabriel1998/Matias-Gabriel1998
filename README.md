@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **matiasmorinicobj@gmail.com**
 
-- 📄 Know about my experiences [soy Founder & CEO de It recruiter technology](soy Founder & CEO de It recruiter technology)
+- 📄 Know about my experiences (soy Founder & CEO de It recruiter technology)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
